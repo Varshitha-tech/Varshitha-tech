@@ -1,0 +1,7 @@
+- 🔭 I’m very passionate about Data analysis
+- 🌱 I’m currently learning ML and AI
+- 👯 I’m looking to collaborate on Data projects
+- 👋 Hi, I’m Varshitha Yarramshetty
+- 📫 Reach me here: varshithayarramshetty@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I enjoy Writing
